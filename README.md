@@ -3,7 +3,7 @@
 
 # mira klint
 
-<sub>17 y.o. &nbsp;·&nbsp; onchain builder</sub>
+<sub>18 y.o. &nbsp;·&nbsp; onchain builder</sub>
 
 <br/>
 </div>
